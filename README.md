@@ -4,7 +4,7 @@
 - 🌱 I’m currently learning ... how to code/program and how to compose music 
 - 💞️ I’m looking to collaborate on ... huh 
 - 📫 How to reach me ... tiktok- @tamtamthealmighty    tumblr- @tamtamthealmighty
-- 😄 Pronouns: ... she/they/he
+- 😄 Pronouns: ... they/them/theirs
 - ⚡ Fun fact: ...i'm abidextrous, i have bathophobia, i'm asexual, and i'm in your walls i'm in your walls i'm in your walls i'm in your walls i'm in your walls i'm in your walls i'm in your walls
 
 <!---
