@@ -5,7 +5,7 @@
 - 💞️ I’m looking to collaborate on ... huh 
 - 📫 How to reach me ... tiktok- @tamtamthealmighty    tumblr- @tamtamthealmighty
 - 😄 Pronouns: ... they/them/theirs
-- ⚡ Fun fact: ...i'm abidextrous, i have bathophobia, i'm asexual, and i'm in your walls i'm in your walls i'm in your walls i'm in your walls i'm in your walls i'm in your walls i'm in your walls
+- ⚡ Fun fact: ...i'm abidextrous, i have bathophobia, i'm asexual and nonbinary, i have synesthesia, and i'm in your walls i'm in your walls i'm in your walls i'm in your walls i'm in your walls i'm in your walls i'm in your walls
 
 <!---
 TamTamTheAlmighty/TamTamTheAlmighty is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
